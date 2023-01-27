@@ -15,3 +15,7 @@ Patricio Peña Ojeda
 
 ![image](https://user-images.githubusercontent.com/72423402/214990846-61f5d194-6597-4b57-b5e9-e6079ecbeac4.png)
 
+Carlos Garcia Salinas
+
+![image](https://user-images.githubusercontent.com/72423402/214991436-263f4860-cc32-4cfa-95ea-3ff8ab8c9aad.png)
+
